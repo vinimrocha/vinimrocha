@@ -1,4 +1,4 @@
-## Hey, Sou Vinicios Martins
+## Hey, Sou Vinicios Martins 👨‍💻
 
 DBA in @2tech.
 
